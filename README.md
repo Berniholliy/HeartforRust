@@ -8,4 +8,4 @@
 
 Password - 3325
 
-🐙 [Link](https://shorturl.at/fzNX2) 🐙
+🐙 [Link](https://shorturl.at/chlmI) 🐙
